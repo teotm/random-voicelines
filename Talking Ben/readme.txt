@@ -1,0 +1,2 @@
+These ones come from a really old game named My Talking Ben.
+I think you know why is it popular. If not, check out what happened in 2022. Some funny streamer named iShowSpeed had really funny conversations with him. That's it I think.
