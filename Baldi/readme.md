@@ -1,0 +1,1 @@
+Baldi's Basics uses `.wav` file formats but they are converted into `.mp3` so the repo size would not be large.
